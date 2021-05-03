@@ -1,1 +1,0 @@
-# Szak_Gyak
